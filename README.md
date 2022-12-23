@@ -1,5 +1,5 @@
 www.lemon1729.xyz
 www.teamflight.kr
-twitch.tv/lemon1729
-youtube.com/@lemon1729
-instagram.com/lemon1729.xyz
+www.twitch.tv/lemon1729
+www.youtube.com/@lemon1729
+www.instagram.com/lemon1729.xyz
